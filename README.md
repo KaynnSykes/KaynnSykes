@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KaynnSykes
+- 👀 I’m interested in coding and videogames
+- 🌱 I’m currently learning coding
+- 📫 How to reach me ... @brayamcoco
+- ⚡ Fun fact: Potter Head
